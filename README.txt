@@ -1,1 +1,1 @@
-Degenerated Coder.
+Degenerated.
